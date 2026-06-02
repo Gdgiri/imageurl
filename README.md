@@ -11,3 +11,16 @@
 # Myblend
 
 ![WhatsApp Image 2025-11-22 at 17 33 48_c6043809](https://github.com/user-attachments/assets/cf2c21b1-2111-490f-b86a-d8f2ac70a9aa)
+
+
+
+# Zoho pricing
+
+# monthly=> <img width="199" height="780" alt="image" src="https://github.com/user-attachments/assets/2a706843-80bc-4a0f-ab5e-a3ea9a65efb9" />
+
+# Yearly=> <img width="197" height="869" alt="image" src="https://github.com/user-attachments/assets/2e35aa36-9ec3-42f2-bd69-a7bb318767ef" />
+
+# Pay as you go => <img width="317" height="831" alt="image" src="https://github.com/user-attachments/assets/3ae24516-fe71-4483-b9da-c3d38bbeb0d8" />
+
+
+
