@@ -23,4 +23,8 @@
 # Pay as you go => <img width="317" height="831" alt="image" src="https://github.com/user-attachments/assets/3ae24516-fe71-4483-b9da-c3d38bbeb0d8" />
 
 
+# zoho campaign pricing => <img width="572" height="722" alt="image" src="https://github.com/user-attachments/assets/a73b9259-7482-46d2-897a-9468c045fbcf" />
+
+# zoho camapaign monthly pricing => <img width="552" height="739" alt="image" src="https://github.com/user-attachments/assets/f8c12e41-bd76-4079-a8dd-8708d659175e" />
+
 
